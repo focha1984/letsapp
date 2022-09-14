@@ -10,7 +10,7 @@
 ---
 ### 点击右上角在浏览器打开下载
 
-#### :arrow_double_down: [Android 版本.APK](https://appshare.onelink.me/7uiT/fa80bb40)
+#### :arrow_double_down: [Android 版本.APK](xxx)
 
 ---
 ### 免费福利
