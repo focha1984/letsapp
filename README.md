@@ -10,7 +10,7 @@
 ---
 ### 点击右上角在浏览器打开下载
 
-#### :arrow_double_down: [Android 版本.APK](xxx)
+#### :arrow_double_down: [Android 版本.APK](http://download.letsvpn.lol/uploadFile/file/app.apk)
 
 ---
 ### 免费福利
